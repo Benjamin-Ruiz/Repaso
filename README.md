@@ -18,4 +18,4 @@ Kick Buttowski: Suburban Daredevil (traducido literalmente Kick Buttowski: Temer
 
 Para más información, visitar: [WIKIPEDIA](https://es.wikipedia.org/wiki/Kick_Buttowski:_Suburban_Daredevil).
 
-(![imagen](file:///C:/Users/Usuario/Documents/Cursos%20U/Introducci%C3%B3n%20a%20I.S/Proyecto%20web/overthegardenwall-22.webp))
+![imagen](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcuatrobastardos.com%2F2015%2F10%2F27%2Freview-over-the-garden-wall%2F&psig=AOvVaw3YBbISRgmDPQMBFR0CJwpa&ust=1715315505577000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCJCQib7e_4UDFQAAAAAdAAAAABAE)
